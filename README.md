@@ -6,6 +6,7 @@ Sección 10
 Integrantes:
 
 Cindy Gualim
+
 Ana Laura Tschen
 
 Descripción
